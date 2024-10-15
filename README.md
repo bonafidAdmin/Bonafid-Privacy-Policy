@@ -1,7 +1,5 @@
 **PRIVACY POLICY**
 
-
-
 **Last updated October 15, 2024**
 
 This Privacy Notice for Hynes Technology Corporation Limited ('**we**', '**us**', or '**our**'), describes how and why we might access, collect, store, use, and/or share ('**process**') your personal information when you use our services ('**Services**'), including when you:
